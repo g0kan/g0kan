@@ -4,6 +4,8 @@
 
 ~> 🥳 Estudante de Hacking & Programação.
 
+~> 🦅 Meu Discord: g0kanʰᵏˢ#9999
+
 ### 🤠 Fica de olho nos meus projetos, pow!
 
 
